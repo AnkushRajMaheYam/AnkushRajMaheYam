@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on IT company and for Content Creators.
 - 📫 reach me :- info.armyofficialindia@gmial.com 
 - 😄 Pronouns: ARMY
-- ⚡ Fun fact: Content Creator & Digital Marketer.
+- ⚡ Fun fact: Video Gamer🎮, Content Creator & Digital Marketer.
 
 <!---
 AnkushRajMaheYam/AnkushRajMaheYam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
