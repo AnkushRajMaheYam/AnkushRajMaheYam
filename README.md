@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding, video Editing and Gaming.
 - 🌱 I’m currently learning Programming Languages.
 - 💞️ I’m looking to collaborate on IT company and for Content Creators.
-- 📫 reach me :- info.armyofficialindia@gmial.com 
+- 📫 reach me :- ankushrajmaheyam@gmail.com 
 - 😄 Pronouns: ARMY
 - ⚡ Fun fact: Video Gamer🎮, Content Creator & Digital Marketer.
 
