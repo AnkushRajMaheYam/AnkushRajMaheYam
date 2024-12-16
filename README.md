@@ -29,6 +29,3 @@ Feel free to explore more of my work and get in touch:
 📘 **Facebook:** [Ankush Raj](https://facebook.com/AnkushRajMaheYam)  
 🎨 **Fiverr:** [Ankush Raj](https://www.fiverr.com/ankushrajmaheya)  
 🛠️ **Upwork:** [Ankush Raj](https://www.upwork.com/freelancers/~01bf6d1e8483199ba6)  
-
-### 🔥 Hashtags & Keywords  
-#AnkushRajMaheYam #AnkushRaj #SoftwareDeveloper #JavaFullStack #TechInnovator #CodingLife #OpenSource #WebDevelopment #AppDevelopment #Cybersecurity #TechEntrepreneur  
